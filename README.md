@@ -9,7 +9,7 @@ Melhor provedor da região, fornecendo canais de televisão, equipamento de qual
 
 🟥[instagram](https://www.instagram.com/telecom.speed/)
 
-## Criado por Juliano
+## Criado por Juliano  Oliveira
 Redes sociais 
 
-[Instagram](https://www.instagram.com/juliano_oliveira_santoss/?__pwa=1)# Speed
+[Instagram](https://www.instagram.com/juliano_oliveira_santoss/?__pwa=1)
